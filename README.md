@@ -1,2 +1,2 @@
 BETVOLE GİRİŞ YAP! RESMİ BİLGİLENDİRME PLATFORMUNA HOŞGELDİNİZ. GİRİŞ LİNKİNE AŞAĞIDAN ULAŞABİLİRSİNİZ.
-<h1><a href="http://gg.gg/1bz59i" title="BETVOLE GİRİŞ YAP">BETVOLE GİRİŞ YAP</a></h1>
+<h1><a href="https://n9.cl/q1d49g" title="BETVOLE GİRİŞ YAP">BETVOLE GİRİŞ YAP</a></h1>
